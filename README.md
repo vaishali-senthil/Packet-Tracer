@@ -2,6 +2,7 @@
 **a.** 
 ![image](https://user-images.githubusercontent.com/59214556/147545983-409d5585-33c7-4232-a022-b1b354fc2dd1.png)
 
+----------------
 **a_2.**
 ![image](https://user-images.githubusercontent.com/59214556/147546034-c8615eaa-9e1c-43c7-adfe-3684829f7448.png)
 
